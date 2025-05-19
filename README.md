@@ -1,1 +1,3 @@
-# the-mountain-is-you
+# *The Mountain Is You : Transform Self-Sabotage to Unlock Self-Mastery*
+
+# *We all have mountains. Not the majestic, snow-capped peaks that pierce the sky, but the internal obstacles, the ingrained patterns of self-sabotage that hold us back from the lives we yearn for. In her insightful and deeply resonant book, “The Mountain Is You: Transforming Self-Sabotage Into Self-Mastery,” Brianna Wiest acts as a compassionate guide, illuminating the often-shadowed paths of our inner landscapes and offering a powerful roadmap for ascent. This isn’t just another self-help book filled with fleeting affirmations; it’s a profound exploration of the roots of our destructive behaviors and a practical guide to cultivating lasting self-awareness and mastery.* [More details…](https://spiritualkhazaana.com/the-mountain-is-you-transform-self-sabotage/)
